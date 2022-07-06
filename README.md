@@ -1,1 +1,1 @@
-
+No one reads the syllabus.
